@@ -1,0 +1,1 @@
+Die bekannte Welt, auch bekannt als [[Meïs]] unter den [[Vai'te]] Waldelfen, wurde von den [[Sechs Geschwister|Sechs Geschwistern]] aus dem [[Chaos]] des [[Urwasser|Urwassers]] geschaffen. Sie beschreibt die materielle Existenz, den Lebensraum des Seins.

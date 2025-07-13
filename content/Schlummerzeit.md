@@ -1,0 +1,19 @@
+Die Schlummerzeit wird dadurch gekennzeichnet, dass sie eine vorgeschichtliche Zeit darstellt, vor der Zeitrechnung nach [[Tassolanischer Kalender|Tassola]]. Der gedachte Anfang, ist die Ankunft der Elfen. Sie konnten sich schnell auf ganz verbreiten, Dörfer und Städte gründen, eine neue enge Bindung mit den Wäldern und Tieren Maiv Ans bilden. Dies war ihr Ursprung.
+
+In einem Ereignis, bei dem das [[Fesira|Schleierkind]] zum ersten Mal sichtbar wurde, erschienen gleichzeitig die [[Gnom|Gnome]]. Da Gnome eine sehr starke, ungenaue Verbindung zum [[Urwasser]] fühlen, wird bis heute angenommen, das Fesira entweder Rückstände dieses Urwassers, oder ein Tor dafür sein könnte.
+
+Nach längerer Zeit kamen aus den Bergen die [[Zwerg|Zwerge]] und leiteten den ersten Kontakt zwischen den Abstammungen ein. Sie hatten schon einige Lebenstätten in den Bergen aufgebaut. Ob sie sie dort schon vor den Elfen waren, ist nicht klar und oft ein Streitgrund zwischen Elfen und Zwergen.
+
+Unklar wann genau oder wie, tauchten später die allseits beliebten [[Halbling|Halblinge]] auf. Sie liessen sich in den Anfängen zuerst bei den Menschen in ihren Dörfern und Städten aufnehmen, jedoch gingen sie zu anderen Abstammungen gleicherseits. Wenige ihrer Individuen, bildeten eigene Siedlungen, sodass es bis heute nur wenige Siedlungen gibt, welche ausschliesslich Halblinge bewohnen.
+
+Als sich Fesira nach einigen Jahren zu beruhigen schien, begann unerwartet wieder ein ähnliches Ereignis, jedoch unabhängig des Schleierkindes. Dieses Ereignis wurde die [[grosse Ausschreitung]] genannt. Ab diesem Zeitpunkt gab es jegliche Kreaturen auf Maiv An, ob schön und freundlich oder furchteinflössen und gefährlich. Um Fesira genauer beobachten zu können, wurden auf Maiv An drei Türme gebaut, die [[Schleiertürme]]. Das grösste Ereignis der Schlummerzeit war jedoch die Öffnung des Weges zur [[Almeïs]], womit alle Abstammungen sterblich auf eigene Art und Weise sterblich wurden.
+
+Später sind über Seeweg die [[Mensch|Menschen]] mit ihren Schiffen auf Silra angekommen. Woher sie ursprünglich kamen, warum sie nach Maiv An gefahren sind und wie lange sie auf Silra dabei schon waren, ist nicht bekannt. In vielen Regionen trafen sie auf neues, unbenutztes Land. In manchen Regionen fanden sie andere Abstammungen, mit denen sie anfingen zusammenzuleben. In anderen Regionen fand sie andere Abstammungen, welche sie vertrieben, massakrierten und vernichteten.
+
+Das zweite Ausschreiten des Schleierkindes und ihr Wirken auf Silra führte dazu, dass Teile von Elfen gewandelt wurden und somit zu [[Ork|Orks]] wurden. Ihr Aussehen, Verhalten, Lebensdauer und andere Eigenschaften änderten in nur wenigen Jahren drastisch. Dieser Prozess wird heute [[Geschwisterspiel]] genannt.
+
+Kurz nach der Erscheinung der Halblinge, gingen aus einigen Wäldern Maiv Ans, aber insbesondere dem grossen Wald [[Grosser Wald Nimrael]] kleine merkwürdige, nach Pflanzen aussehenden Wesen heraus. Diese Wesen, welche später unter dem Begriff [[Leshi]] bekannt wurden, hatten einen ähnlichen Prozess wie die Orks erfahren. Sie hatten das Geschenk der [[Vier Essenzen|2. und 3. Essenz]] bekommen. Dieses Geschenk und den Exodus der Leshi wird [[Waldlauf]] genannt.
+
+Im Laufe der Schlummerzeit gab es viele Konflikte, insbesondere zwischen Menschen und Elfen. Durch solche Konflikte jedoch, wurden auch viele andere Abstammungen involviert oder vertrieben. Die Orks leben heute immernoch in stark isolierten Siedlungen und zeigen eine hohe Abneigungen, zu Neuankömmlingen in ihren Siedlungen oder verweigern den Zutritt ganz.
+
+Die Schlummerzeit endet nach dem [[Tassolanischer Kalender]] mit der Öffnung der [[Vesmeïs]].

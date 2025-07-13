@@ -1,0 +1,1 @@
+Die Sechs Geschwister sind die primären [[Gottheiten]] des [[Vai'tei Pantheon|Vai'tei Pantheons]]. Sie sind es, welches aus dem [[Chaos]] des [[Urwasser|Urwassers]] neues geschaffen haben. Dank ihnen gibt es die Existenz, so wie sie heute beobachtet werden kann. 
