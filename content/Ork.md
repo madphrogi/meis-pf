@@ -1,0 +1,15 @@
+Orks sind stolz und stark, mit abgehärtetem Körperbau, welche physische Kraft und Ruhm im Kampf schätzen.
+
+Orks werden im Feuer der Gewalt und des Konflikts geschmiedet, oft schon ab dem Moment ihrer Geburt. Da ihr Leben häufig brutal verkürzt wird, genießen Orks es, ihre Stärke gegen würdige Feinde zu testen, oft indem sie ein ranghöheres Mitglied ihrer Gemeinschaft um die Vorherrschaft herausfordern. Orks haben es oft schwer, von anderen Gemeinschaften akzeptiert zu werden, die sie häufig als Bestien ansehen. Diejenigen, die sich die Loyalität eines Ork-Freundes verdienen, lernen jedoch bald, dass die Treue und Ehrlichkeit eines Orks unvergleichlich ist. Die Kultur der Orks lehrt, dass sie durch die Herausforderungen, die sie überleben, geformt werden, und die Würdigsten überleben die grössten Entbehrungen. Orks, die sowohl ein langes Leben als auch grosse Triumphe erringen, geniessen grossen Respekt.
+### Mögliches Verhalten
+- Ergreifen jede Gelegenheit, die Stärke in einem körperlichen Wettkampf zu beweisen.
+- Sie ziehen den Tod in einem glorreichen Kampf einem banalen Tod durch Alter oder Krankheit vor.
+### Mögliche Wahrnehmung von anderen Abstammungen
+- Sehen sie als gewalttätig oder disziplinlos an.
+- Bewundern ihre Offenheit und unverblümte Ehrlichkeit.
+## Physische Beschreibung
+Orks sind gros und kraftvoll gebaut, mit langen Armen und stämmigen Beinen. Viele Orks werdne bis zu 210 Zentimetern gross, obwohl sie dazu neigen, eine breite, fast krummbeinige Haltung einzunehmen und an den Schultern nach vorne zu hängen. Orks haben eine raue Haut, dicke Knochen und steinharte Muskeln, was sie für den Krieg und andere körperlich anstrengende Aufgaben geeignet macht. Die Hautfarbe der Orks ist in der Regel ein Grünton, obwohl einige Orks auch andere Hautfarben haben, die die Anpassung an ihre Umgebung widerspiegeln.
+
+Orks finden eine kräftige Statur, stark vernarbte Haut, große Stoßzähne und Tätowierungen attraktiv, unabhängig vom Geschlecht. Orks erreichen das körperliche Erwachsenenalter im Alter von 17 Jahren, wobei viele Orks bis zu 60 Jahre alt werden können.
+## Gesellschaft
+Die meisten Ork-Gemeinschaften - bekannt als Paktenbund - definieren sich durch zwei Dinge: Schmerz und Ruhm. Beide verdienen in nahezu gleichem Masse Respekt, solange der Schmerz mit Stoizismus ertragen wird. Ein Ork mit vielen Narben, der mit einem gebrochenen Bein klaglos umhergeht, wird ebenso bewundert wie einer, der auf dem Schlachtfeld einen großen Sieg erringt. Darüber hinaus bestimmt die Macht die Dynamik in den Familien und Bünden. Schwächere Orks arbeiten auf Geheiss der Stärkeren, und die Macht wechselt ständig zwischen Orks, die ihre Stärke unter Beweis stellen. Orks neigen dazu, ihre familiären Pflichten zu teilen, indem sie ihre Kinder als Gemeinschaft aufziehen und die Verantwortung auf den gesamten Hof verteilen.

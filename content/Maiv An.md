@@ -17,7 +17,7 @@ Der Süden Maiv Ans, insbesondere die Südspitze der Bchir ist arktisch geprägt
 Die Fauna Maiv Ans ist vielfältig, unberechenbar und zu Teilen nicht komplett bekannt. Unter den Tieren, Bestien, Monstern, Kreaturen und jeglichen anderen Lebewesen werden viele aktiv gejagt und/oder zur landwirtschaftlichen Haltung genutzt. Trotz dieser Bemühungen ist es den verschiedenen Abstammungen nicht gelungen, die wildesten und schreckslichten Kreaturen auszurotten.
 # Geschichte
 ### Besiedlung 
-Die ersten Anfänge der Besiedlung Maiv Ans liegen sehr lange zurück. Durch bis heute unbekannte Weise, migrierten die [[Elf|Elfen]] von [[Bissera]] nach [[Silra]], wobei Maiv An als erster Ankunftsort verstanden wird. Ob zur gleichen Zeit die Elfen auf anderen Teilen der Welt ankamen, ist jedoch unklar und konnte noch nicht belegt werden. 
+Die ersten Anfänge der Besiedlung Maiv Ans liegen sehr lange zurück. Durch bis heute unbekannte Weise, migrierten die [[Elf|Elfen]] von [[Bisera]] nach [[Silra]], wobei Maiv An als erster Ankunftsort verstanden wird. Ob zur gleichen Zeit die Elfen auf anderen Teilen der Welt ankamen, ist jedoch unklar und konnte noch nicht belegt werden. 
 ### Schlummerzeit
 Die [[Schlummerzeit]] ist das Zeitalter, in dem die meisten Abstammungen auf Silra und Maiv An ankamen oder dort entstanden sind. Sie enthält die verschiedenen Prozesse, wie [[Fesira]], das Schleierkind, Maiv An und seine Bewohner mit der Zeit beeinflusste und wie diese darauf reagierten. So auch der Bau der [[Schleiertürme]], die verschiedenen Konflikte zwischen Elfen und Menschen, der Exodus der Leshi und viele weitere Ereignisse. Die Öffnung zur [[Vesmeïs]] beschreibt das Ende der Schlummerzeit.
 ### 1. Zeitalter

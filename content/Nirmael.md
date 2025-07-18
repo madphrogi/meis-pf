@@ -1,3 +1,4 @@
 **Nirmael** ist ein Königreich in [[Maiv An]], im Südwesten von [[Vai'te]]. Der Grossteil des Königreiches wird von [[Mensch|Menschen]] und [[Elf|Elfen]] bewohnt. Das Königreich hat Regionen, die dicht besiedelt, aber auch welche, die dicht bewaldet sind. Die Hauptstadt ist [[Vela'tel]], liegt am namensgebenden [[Velasee]] und ist der Thronsitz des Königreichs. 
 # Geographie
-Im Norden grenzt Nimrael an das stark verbündete [[Nachbarland1]], im Osten über dem [[Noäselgebirge]] an [[Nachbarland2]] sowie im Südosten an das [[Nachbarland3]]. Im Westen Nirmaels liegt das Meer der [[Bucht von Falkenfels|Falkenfelser Bucht]].
+Im Norden grenzt Nimrael an das stark verbündete [[Nachbarland1]], im Osten über dem [[Nöaselgebirge]] an [[Nachbarland2]] sowie im Südosten an das [[Nachbarland3]]. Im Westen Nirmaels liegt das Meer der [[Bucht von Falkenfels|Falkenfelser Bucht]]. 
+Der Osten Nirmaels sehr bergig, mit hohen Bergspitzen und tiefen Tälern welche tief ins Land reichen. 

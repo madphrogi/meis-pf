@@ -15,8 +15,8 @@ Ein grosser Teil der Oberfläche Silras scheinen die grossen Meere auszumachen. 
 [[Endra]] ist Silras grösster Begleiter.
 ### Attara
 [[Attara]] ist Silras zweitgrösster Begleiter.
-### Bissera
-[[Bissera]] ist Silras drittgrösster Begleiter.
+### Bisera
+[[Bisera]] ist Silras drittgrösster Begleiter.
 # Entstehung
 Silra ist wie auch alle andere der [[Sechs Kinder]], bei der Erschaffung der [[Essenz|1. Essenz]] von den [[Sechs Geschwister]], entstanden. Ob Silra und seine Begleiter als eines erschaffen wurden und sich später aufgeteilt haben oder von Anfang an als einzelne, getrennte Objekte erschaffen wurden ist unklar.
 # Leben
